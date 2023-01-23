@@ -1,1 +1,1 @@
-# Comprehensive-Training-on-HPE-s-AI-Offerings
+# Comprehensive-Training-on-HPE's-AI-Offerings
